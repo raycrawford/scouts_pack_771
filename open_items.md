@@ -54,7 +54,7 @@ The group price for scouts is $18/person, which would be more expensive.  Is thi
 ### 8/21/18 update
 Closed due to high water.  Need to follow up at a later date (RC).
 
-# Carolling @ The Barrington
+## Carolling @ The Barrington
 * December 10 or 17
 * (859) 572-0667
 
