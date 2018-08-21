@@ -41,7 +41,6 @@ The site is rather slow... here are direct links:
 * Sign up: https://my.scouting.org/?tu=UF-BAS-438paa3771&beascout=true
 * More info: https://my.scouting.org/VES/OnlineReg/1.0.0/?tu=UF-MB-438paa3771
 
-
 # Cub Scout Tracker
 * Parents should focus on working with kids on belt loops AND they are responsible for getting those loops into Cub Scout Tracker
 
