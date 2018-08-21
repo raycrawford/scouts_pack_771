@@ -8,11 +8,7 @@ Communication Strategy:
 
 I want to make sure our families are aware of what we have going on. It has been my goal since taking over as cubmaster to improve in this area. We all understand that not everyone can attend every event, but I want every scout to have the opportunity to participate in everything we have to offer. The volunteer leaders including myself have come up with a number of ways to access this information. I'd like to thank everyone who has helped out. Hopefully this isn't overkill. We can adjust this as things go along. Any and all suggestions to improve are greatly appreciated.
 
-<<<<<<< HEAD
 * [Pack Newsletter](./20180820-attachments/771_Newsletter.pdf) - I will be sending this out on a quarterly basis. We will have a parent leader meeting every other month to pin down events and news items. [ I have attached a copy.](./20180820-attachments/771_Newsletter.pdf) Print it out and put it on the fridge.
-=======
-* Pack Newsletter - I will be sending this out on a quarterly basis. We will have a parent leader meeting every other month to pin down events and news items. [I have attached a copy|./20180820-attachments/771_Newsletter.pdf]. Print it out and put it on the fridge.
->>>>>>> c7e5ef55559244c38081344ff0fe615372c194d7
 
 * pack771.mypacksite.org - This is our new website. All info you should need about what we have going on is here. It works on Android and Apple devices as well as desktop/laptop. I just accessed it from Eli's school iPad, so the kids can have access to it if they want. You do not need to log into anything to view any of the info. There are also links to any scouting website you would need including cubscouttracker.com.
 
