@@ -45,6 +45,8 @@ The site is rather slow... here are direct links:
 # Cub Scout Tracker
 * Parents should focus on working with kids on belt loops AND they are responsible for getting those loops into Cub Scout Tracker
 
+**Link:** https://www.cubscouttracker.com/
+
 **Actions:**
 * Parents: buy den-specific books
 * Parents: work through what acheivements you're boy(s) should receive
@@ -73,6 +75,20 @@ First Monday of the Month (except the first one which will be the day after Labo
 
 # September 8th
 * Canoe
+  * Loveland canoe rentals
+  
+Loveland Canoe & Kayak Rental
+Loveloand, OH 45140
+(513) 683-4611
+9AM - 6PM
+
+Castle trip; 2 - 4 hours to go 5 miles and passes the Loveland castle
+* Another option is the 7 bridges which is a 4 - 6 hour trip over 10 miles...
+
+Need to clarify; it says standard price is $48.00/canoe and 2 children 4 - 10 can ride free with parents...  Which would seem to infer that it's ~ $50 for up to 4 people (2 kids, 2 adults) in a canoe.
+
+The group price for scouts is $18/person, which would be more expensive.  Is this supposed to be $18/canoe?
+
 
 # October 4th Pack Meeting
 * Bobcat Ceremony
@@ -86,10 +102,12 @@ First Monday of the Month (except the first one which will be the day after Labo
 # Fort Thomas Police
   * November 5th
   * Action items:
-    * Call and schedule
+    * Call and schedule 7PM => ??
+    * 859-441-6562
 
 # Placing flags at cemetary
   * Evergreen Cemetary
+    * (859) 441-0703
   * Sunday, November 11th
   * Action items (RAC):
     * Need to buy flags
@@ -98,15 +116,17 @@ First Monday of the Month (except the first one which will be the day after Labo
 # Holiday Party
 * December 3rd
 
-# Carolling
+# Carolling @ The Barrington
 * December 10-18
+* (859) 572-0667
 * Action items (RAC):
   * Call to check availablity
 
 # Hosea House
-  * Action items (RAC):
-    * Check availability
-    * Check age limits
+* (859) 261-9806
+* Action items (RAC):
+  * Check availability
+  * Check age limits
 
 # Wright Patterson
   * January/Feburary
