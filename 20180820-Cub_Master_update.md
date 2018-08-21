@@ -10,11 +10,13 @@ I want to make sure our families are aware of what we have going on. It has been
 
 * [Pack Newsletter](./20180820-attachments/771_Newsletter.pdf) - I will be sending this out on a quarterly basis. We will have a parent leader meeting every other month to pin down events and news items. [ I have attached a copy.](./20180820-attachments/771_Newsletter.pdf) Print it out and put it on the fridge.
 
-* pack771.mypacksite.org - This is our new website. All info you should need about what we have going on is here. It works on Android and Apple devices as well as desktop/laptop. I just accessed it from Eli's school iPad, so the kids can have access to it if they want. You do not need to log into anything to view any of the info. There are also links to any scouting website you would need including cubscouttracker.com.
+* http://pack771.mypacksite.org - This is our new website. All info you should need about what we have going on is here. It works on Android and Apple devices as well as desktop/laptop. I just accessed it from Eli's school iPad, so the kids can have access to it if they want. You do not need to log into anything to view any of the info. There are also links to any scouting website you would need including cubscouttracker.com.
 
-* Facebook - We will continue to use Facebook. We will post events coming up in the very near future and we all can share our photos of our scouting adventures. The official page is Cub Scout Pack 771.
+* [Facebook](https://www.facebook.com/groups/1774862539414394/) - We will continue to use Facebook. We will post events coming up in the very near future and we all can share our photos of our scouting adventures. The official page is [Cub Scout Pack 771](https://www.facebook.com/groups/1774862539414394/).
 
 * WhatsApp - This phone app is for secure / immediate communication. It offers us the ability to have a group chat between the whole pack or individual dens. Think of it as a chat walkie talkie. The primary function of this would be on outings or at events. Example: Your den is set to meet in 2 hours and it is a beautiful day out. The den leader may decide to meet at the park instead of at Moyer. He can communicate to his den with this app. I hope this happens a lot.
+
+See Facebook group for link or ask your Den leader for an invite.
 
 * Email chain - We will continue to send out emails with upcoming events or updates. The newsletter will be sent out in the email chain.
 
