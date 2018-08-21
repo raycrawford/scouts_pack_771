@@ -20,16 +20,6 @@ Need to get Scout count and preorder.  Youth are $10 preregistered, $14 @ door. 
 * URL: http://www.danbeard.org/spookoree
 * Date: October 27, 2018
 
-## Camp Craig - Completed 8/21/2018
-The "Grand Canyon" camp site was reserved for 10/27/2018.  Check in is at 1 PM on 10/27 and checkout is at 11 AM 10/28.  This camp ground was chosen because it was a pain to get the wagons past the rention pond last year.
-
-Reservations made for 30 people.  There is no cost associated with the camp site.  Confirmation (Order) number: 29633.  RC is the contact.
-
-Map: http://www.danbeard.org/Camping/CampCraig/CraigMap
-Grand Canyon: http://www.danbeard.org/Camping/CampCraig/Rentals/Product?p=149
-
-Note tranfered back to the [20180809-Leadership_meeting](./20180809-Leadership_meeting.md) page.
-
 ## Hosea House
 (859) 261-9806
 ### 8/21/18 update
@@ -62,3 +52,13 @@ Closed due to high water.  Need to follow up at a later date (RC).
 Tried calling, but they were closed.  Will follow up (RC).
 
 # Completed items
+
+## Camp Craig - Completed 8/21/2018
+The "Grand Canyon" camp site was reserved for 10/27/2018.  Check in is at 1 PM on 10/27 and checkout is at 11 AM 10/28.  This camp ground was chosen because it was a pain to get the wagons past the rention pond last year.
+
+Reservations made for 30 people.  There is no cost associated with the camp site.  Confirmation (Order) number: 29633.  RC is the contact.
+
+Map: http://www.danbeard.org/Camping/CampCraig/CraigMap
+Grand Canyon: http://www.danbeard.org/Camping/CampCraig/Rentals/Product?p=149
+
+Note tranfered back to the [20180809-Leadership_meeting](./20180809-Leadership_meeting.md) page.
