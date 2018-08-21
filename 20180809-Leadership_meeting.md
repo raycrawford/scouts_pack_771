@@ -12,7 +12,10 @@ The calendar at http://pack771.mypacksite.org trumps whatever is listed here wit
 * Johnson and Saint Catherine packs are closing down
 * Roughly 20 kids in those packs; seeking for them to consolodate
 * 771 will do Back to School recruiting
-* Ken following up
+
+**Actions:**
+* Ken attending meeting with some other parents/leaders 8/22 @ 6:30 PM
+* Meeting at 915; meet there if interested
 
 # Back to School Recruiting
 August 13th @ 5:30 - 7:00PM
@@ -32,8 +35,21 @@ Need a meeting to schedule events for prospective Scouts
   * You can join on that page and pay dues
   * This should be the primary mechanism to sign people up; much more convenient that the paper forms
 
+**Links:**
+The site is rather slow... here are direct links:
+
+* Sign up: https://my.scouting.org/?tu=UF-BAS-438paa3771&beascout=true
+* More info: https://my.scouting.org/VES/OnlineReg/1.0.0/?tu=UF-MB-438paa3771
+
+
 # Cub Scout Tracker
 * Parents should focus on working with kids on belt loops AND they are responsible for getting those loops into Cub Scout Tracker
+
+**Actions:**
+* Parents: buy den-specific books
+* Parents: work through what acheivements you're boy(s) should receive
+  * Awards will be passed out at each Pack meeting
+  * Parents should follow up with the 
 
 # MyPackSite
 * URL: http://pack771.mypacksite.org/
