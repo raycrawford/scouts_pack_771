@@ -72,23 +72,11 @@ First Monday of the Month (except the first one which will be the day after Labo
 
 # Popcorn
 
-
-# September 8th
-* Canoe
-  * Loveland canoe rentals
-  
+# Canoe - September 8th
 Loveland Canoe & Kayak Rental
 Loveloand, OH 45140
 (513) 683-4611
 9AM - 6PM
-
-Castle trip; 2 - 4 hours to go 5 miles and passes the Loveland castle
-* Another option is the 7 bridges which is a 4 - 6 hour trip over 10 miles...
-
-Need to clarify; it says standard price is $48.00/canoe and 2 children 4 - 10 can ride free with parents...  Which would seem to infer that it's ~ $50 for up to 4 people (2 kids, 2 adults) in a canoe.
-
-The group price for scouts is $18/person, which would be more expensive.  Is this supposed to be $18/canoe?
-
 
 # October 4th Pack Meeting
 * Bobcat Ceremony
@@ -96,8 +84,19 @@ The group price for scouts is $18/person, which would be more expensive.  Is thi
 # Spook-o-ree
 * October 27
 * Actions: 
-  * RAC to contact Camp Craig (513 248 8595) and reserve a primitive camp site
-  * Need to pay in advance for Spook-o-ree so that we get discount
+  * RAC to contact Camp Craig (513 248 8595) and reserve a primitive camp site - DONE
+  * RAC - need to pay in advance for Spook-o-ree so that we get discount
+
+## Camp Craig
+The "Grand Canyon" camp site was reserved for 10/27/2018.  Check in is at 1 PM on 10/27 and checkout is at 11 AM 10/28.  This camp ground was chosen because it was a pain to get the wagons past the rention pond last year.
+
+Reservations made for 30 people.  There is no cost associated with the camp site.  Confirmation (Order) number: 29633.  RC is the contact.
+
+Map: http://www.danbeard.org/Camping/CampCraig/CraigMap
+Grand Canyon: http://www.danbeard.org/Camping/CampCraig/Rentals/Product?p=149
+
+## Spook-o-ree
+Need to get count and preregister.
 
 # Fort Thomas Police
   * November 5th
@@ -105,19 +104,22 @@ The group price for scouts is $18/person, which would be more expensive.  Is thi
     * Call and schedule 7PM => ??
     * 859-441-6562
 
+## Update
+* Event tenatively scheduled and reminder set to e-mail again on 10/15
+* RAC to follow up
+
 # Placing flags at cemetary
   * Evergreen Cemetary
     * (859) 441-0703
   * Sunday, November 11th
   * Action items (RAC):
-    * Need to buy flags
-    * Need to check with cemetary
+    * Need to follow up with KP re: schedule
 
 # Holiday Party
 * December 3rd
 
 # Carolling @ The Barrington
-* December 10-18
+* December 10 or 17
 * (859) 572-0667
 * Action items (RAC):
   * Call to check availablity
