@@ -28,13 +28,11 @@ Loveloand, OH 45140
 (513) 683-4611
 9AM - 6PM
 
+
+The trip is 9/8.  Confirmation is needed by the 9/4 pack meeting. Check in is 10:30. It will be $18 per person. If there are three in a canoe anyone 8 and under is free. No one under 4 or under 40 lbs can attend. It is an estimated 2.5 hour trip. https://www.lovelandcanoe.com.
+
 ### From web site
 Castle trip; 2 - 4 hours to go 5 miles and passes the Loveland castle
-* Another option is the 7 bridges which is a 4 - 6 hour trip over 10 miles...
-
-Need to clarify; it says standard price is $48.00/canoe and 2 children 4 - 10 can ride free with parents...  Which would seem to infer that it's ~ $50 for up to 4 people (2 kids, 2 adults) in a canoe.
-
-The group price for scouts is $18/person, which would be more expensive.  Is this supposed to be $18/canoe?
 
 ### 8/21/18 update
 * Closed due to high water.  Need to follow up at a later date (RC).
