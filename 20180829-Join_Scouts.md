@@ -34,7 +34,7 @@ Eric and I talked about 2 Boy Scout events taking place that the AOLs and Webelo
 1. November 10th, 2018 campout at John Bryan State Park
 1. Jan 12-13, 2019 campout at Marlie Lodge.
 
-Information about both of these events will be passed along to Mike (Webelo) and Ken (AOL) and they can decide whether their Dens will participate.
+[Information about both of these events](./20180829-attachments/20180829-BSA_Troop_70_events.pdf) will be passed along to Mike (Webelo) and Ken (AOL) and they can decide whether their Dens will participate.
 
 Michelle, whom I didn't have as much opportunity to connect with, said 437 will have similar opportunities.
 
