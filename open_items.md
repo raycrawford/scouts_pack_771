@@ -9,6 +9,9 @@ The cemetery has flags they will let us put out.
 
 The mypacksite calendar has been updated.
 
+### 10/12/2018 update
+* Called and left Dave a message confirming for Saturday, November 11th.
+
 ### Actions:
 * RC to schedule on the November 10th (Saturday) 1 - 3
   * Call Dave Smith @ (859) 441-0703
@@ -16,6 +19,18 @@ The mypacksite calendar has been updated.
 
 ## Hosea House
 (859) 261-9806
+
+## 10/12/2018 update
+* Talked to Bruce Stelzer; he's the Director
+* Angie is the only other full time employee; runs kitchen and does scheduling
+* Volunteer teams are 8 - 12 people
+  * Typically like kids 11 and older...
+  * Serves, wipes tables and cleans up
+  * Server 4 - 5:30 M - F
+  * Arrive 3:30, done by 6 PM
+* Individuals can serve; just call Angie
+* On weekends, volunteers take over the kitchen and supply food...
+* Occassionally do breakfast on the weekends; those are added addhoc on Saturday AMs; again, groups provide food
 
 ### 8/21/18 update
 RC tried calling.  No answer.  Will follow up at a later time.
