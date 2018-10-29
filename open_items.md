@@ -1,22 +1,5 @@
 # Open Items
 
-## Veterans Flags; Evergreen Cemetery
-Verterans day is November 11th.
-
-There are two sections; general military and Civil War.  There are about 300 graves.  Additional graves are dispersed throughout the cemetery.  Historically, Scouts have focused on these 300 sites.
-
-The cemetery has flags they will let us put out.
-
-The mypacksite calendar has been updated.
-
-### 10/12/2018 update
-* Called and left Dave a message confirming for Saturday, November 11th.
-
-### Actions:
-* RC to schedule on the November 10th (Saturday) 1 - 3
-  * Call Dave Smith @ (859) 441-0703
-* Class A Uniform
-
 ## Hosea House
 (859) 261-9806
 
@@ -65,19 +48,40 @@ Tried calling, but they were closed.  Will follow up (RC).
 * E-mail mypacksite about silly Den names. - DONE
 
 # Pending items
+## Fort Thomas Police Department
+[Sergant Nathan Day](nday@ftthomas.org) is the night-shift duty manager.  They schedule 4 weeks out.  I e-mailed him our intent to come @ 7PM on November 5th.  He is in training until after 9/5/2018.  I will need to follow up with him around October 15th.  I have an entry on my calendar.
+
+### Actions
+* 10/29/18: I called Sergant Day an left him a message and e-mailed him to confirm.  Waiting to hear back before closing out.
+
+## Veterans Flags; Evergreen Cemetery
+Verterans day is Sunday, November 11th.
+
+There are two sections; general military and Civil War.  There are about 300 graves.  Additional graves are dispersed throughout the cemetery.  Historically, Scouts have focused on these 300 graves at the 2 specific sites.
+
+The cemetery has flags they will let us put out.
+
+The mypacksite calendar has been updated.
+
+The contact at Evergreen is Dave Smith @ (859) 441-0703
+
+### PLAN
+* Ray Crawford will pick up the flags before 4 PM on Friday, November 9th
+* Place flags on Saturday November 10th (note; this is the same weekend the AOLs are scheduled to be at a Boy Scout campout and November 10th is deer season opening day)
+  * Evergreen gates are open 8AM - 5PM
+  * Class A uniforms
+
+### Open Action Items
+* Pick up flags (planned)
+* Compose and send e-mail to troop
+
+# Completed items
 ## Spook-o-ree
 Need to get Scout count and preorder.  Youth are $10 preregistered, $14 @ door.  Adults and children under 3 are free.  Historically, we have paid for all (preregistered) Scouts and their friends.  Additional siblings were the parents responsbility.
 
 * URL: http://www.danbeard.org/spookoree
 * Date: October 27, 2018
 
-### UPDATE
-Placed on 10/1 agenda; in need of a attendee count.
-
-## Fort Thomas Police Department
-[Sergant Nathan Day](nday@ftthomas.org) is the night-shift duty manager.  They schedule 4 weeks out.  I e-mailed him our intent to come @ 7PM on November 5th.  He is in training until after 9/5/2018.  I will need to follow up with him around October 15th.  I have an entry on my calendar.
-
-# Completed items
 ## Camp Craig - Completed 8/21/2018
 The "Grand Canyon" camp site was reserved for 10/27/2018.  Check in is at 1 PM on 10/27 and checkout is at 11 AM 10/28.  This camp ground was chosen because it was a pain to get the wagons past the rention pond last year.
 
